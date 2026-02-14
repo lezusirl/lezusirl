@@ -3,10 +3,10 @@
 </p>
 <p align="center">
   <sub>
-<a href="https://kittydummy.atabook.org">atabook</a> ·
-    <a href="https://evanumaa.straw.page/">strawpage</a> ·
-<a href="https://guns.lol/meowzus">guns.lol</a> ·
-     <a href="https://en.pronouns.page/@evanuma">pronouns</a>
+<a href="https://kittydummy.atabook.org">ata</a> ·
+    <a href="https://evanumaa.straw.page/">straw</a> ·
+<a href="https://guns.lol/meowzus">gunslol</a> ·
+     <a href="https://en.pronouns.page/@evanuma">prns</a>
   </sub>
 </p>
 
