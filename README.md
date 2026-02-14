@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/5522ece1dccfd822d267a0bee35c63dbdc2ed439/player%20transparent%20.%20ppt.png" width="400"/>
+<img src="https://github.com/lezusirl/lezusirl/blob/2da9f6e7cc170ceed05c69db26ec73513316e133/G56wa7_boAA5a-d.jpg" width="500"/>
 </p>
 <p align="center">
   <sub>
