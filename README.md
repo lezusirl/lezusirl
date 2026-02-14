@@ -11,4 +11,4 @@
 </p>
 <p align="center">
 <sub>
-he's so me
+<a href="https://mythcommunity.miraheze.org/wiki/Lezus">he's literally me</a>
