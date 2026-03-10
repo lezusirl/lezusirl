@@ -15,6 +15,9 @@
 <a href="https://en.pronouns.page/@evanuma">PRONOUNS</a> <img src="https://github.com/lezusirl/lezusirl/blob/59ff65fb82f9711fab91754e3533a68760881a94/tumblr_73551805f89263cd759bb4faed781056_2a93630b_75.webp">
   </sub>
 </p>
+<p align="center">
+<img src="https://github.com/lezusirl/lezusirl/blob/29dae7783afd2be7512c113503b384edd7da78ef/tumblr_329ea64a00799205872d90bf79024465_ca9c270f_75.webp" width="120">
+</p>
 
 <p align="center">
 <img src="https://github.com/lezusirl/lezusirl/blob/4e65dbcc3bdcd273bea65a333e56a8835ca26793/divider%202.png"/>
