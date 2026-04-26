@@ -12,7 +12,8 @@
 <img src="https://github.com/lezusirl/lezusirl/blob/59ff65fb82f9711fab91754e3533a68760881a94/tumblr_18b5048213e4a9cb2b80bfadb7766974_3d67fdc6_75.webp"> <a href="https://kittydummy.atabook.org">ATABOOK</a>ㅤ
 <a href="https://guns.lol/meowzus">GUNS</a>ㅤ
 <a href="https://evawuffz.straw.page/">STRAWPAGE</a>ㅤ
-<a href="https://en.pronouns.page/@evanuma">PRONOUNS</a> <img src="https://github.com/lezusirl/lezusirl/blob/59ff65fb82f9711fab91754e3533a68760881a94/tumblr_73551805f89263cd759bb4faed781056_2a93630b_75.webp">
+<a href="https://en.pronouns.page/@evanuma">PRONOUNS</a>ㅤ
+<a href="https://rentry.co/evawuffz">RENTRY</a> <img src="https://github.com/lezusirl/lezusirl/blob/59ff65fb82f9711fab91754e3533a68760881a94/tumblr_73551805f89263cd759bb4faed781056_2a93630b_75.webp">
   </sub>
 </p>
 <p align="center">
