@@ -22,6 +22,10 @@ ${\color{#CBCBBE}\text{we are a Lezus fictionkin and although in canon he is an 
 ${\color{#BCBCAB}\text{ic: starx﹏nose on twt}}$
 </sub>
 </p>
+<p align="center">
+${\color{#A5A5A1}\text{we’re usually nonverbal, so don’t expect replies unless close friends}}$ <br>
+${\color{#7F838C}\text{lezus kins dni . do not copy nor take inspo strictly}}$
+</p>
 
 <p align="center">
   <a href="https://kittydummy.atabook.org/">
